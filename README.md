@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development, App Development And Many More!!
 - 🌱 I’m currently learning Web Development And Side By Side Studying In High School
 - 💞️ I’m looking to learn bot development
-- 📫 You Can Reach Me Via My Email
+- 📫 You Can Reach Me Via My Email-manangrover98@gmail.com
 or just dm me on discord- Shutterman #6063
 
 <!---
